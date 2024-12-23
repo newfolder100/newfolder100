@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Arman
+- 👀 I’m interested in fabric minecraft coding
+- 🌱 I’m currently learning minecraft coding
+- 📫 How to reach me discord :newasw
